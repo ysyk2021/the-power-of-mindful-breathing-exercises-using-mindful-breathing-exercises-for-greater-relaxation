@@ -1,0 +1,15 @@
+{
+    "name": "the-power-of-mindful-breathing-exercises-using-mindful-breathing-exercises-for-greater-relaxation-and-health",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
