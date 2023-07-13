@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Breathing: Guided Meditations and Breathing Exercises for Relaxation
+Guided Meditations and Breathing Exercises for Relaxation
 ====================================================================================================================
 
 Guided meditations and breathing exercises offer a helpful tool for practicing mindful breathing and promoting relaxation. By following along with a guided practice, individuals can enhance their mindfulness skills and experience greater physical and mental relaxation.

@@ -1,4 +1,4 @@
-Chapter 7: Mindful Breathing and Productivity: The Relationship Between Breathing and Productivity
+The Relationship Between Breathing and Productivity
 ==================================================================================================
 
 In today's fast-paced world, productivity is highly valued. However, constant distraction and stress can make it challenging to stay focused and productive. Mindful breathing offers a simple yet effective tool for improving focus, attention, and productivity.

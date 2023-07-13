@@ -1,4 +1,4 @@
-Introduction: Importance of Mindful Breathing Exercises for Relaxation and Health
+Importance of Mindful Breathing Exercises for Relaxation and Health
 =================================================================================
 
 In today's fast-paced world, stress and anxiety are common experiences that can negatively impact physical and mental health. Mindful breathing exercises offer a powerful tool for managing stress and promoting relaxation and overall wellbeing.

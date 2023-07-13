@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Breathing: Breath Counting and Visualization Techniques
+Breath Counting and Visualization Techniques
 =======================================================================================================
 
 Mindful breathing exercises offer a simple yet powerful tool for improving physical and mental health, reducing stress, and enhancing overall wellbeing. Two common techniques for practicing mindful breathing include breath counting and visualization.

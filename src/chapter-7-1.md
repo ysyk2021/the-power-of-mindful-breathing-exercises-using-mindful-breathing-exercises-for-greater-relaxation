@@ -1,4 +1,4 @@
-Chapter 6: Mindful Breathing and Mental Health: Cultivating Emotional Resilience Through Mindful Breathing
+Cultivating Emotional Resilience Through Mindful Breathing
 ==========================================================================================================
 
 Emotional resilience is the ability to adapt to stress and adversity, bounce back from difficult situations, and maintain a positive outlook in the face of challenges. Mindful breathing exercises offer a powerful tool for cultivating emotional resilience and improving overall mental health.

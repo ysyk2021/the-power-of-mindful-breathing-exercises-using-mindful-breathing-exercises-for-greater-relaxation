@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful breathing exercises for relaxation and health](chapter-1-2.md)
 - [Chapter 1: Understanding the Benefits of Mindful Breathing](chapter-2.md)
@@ -32,8 +31,4 @@
   - [The relationship between breathing and productivity](chapter-8-1.md)
   - [Benefits of mindful breathing for focus and concentration](chapter-8-2.md)
   - [Techniques for incorporating mindful breathing into work and daily routines](chapter-8-3.md)
-- [Chapter 8: Conclusion](chapter-9.md)
-  - [Reflection on the power of mindful breathing exercises](chapter-9-1.md)
-  - [Final thoughts and recommendations for continuing the journey of greater relaxation and health through mindful breathing](chapter-9-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

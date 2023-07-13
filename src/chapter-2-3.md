@@ -1,4 +1,4 @@
-Chapter 1: Understanding the Benefits of Mindful Breathing: Evidence-based research supporting the effectiveness of mindful breathing
+Evidence-based research supporting the effectiveness of mindful breathing
 =====================================================================================================================================
 
 Mindful breathing exercises have gained popularity in recent years as a tool for improving physical and mental health. In this chapter, we will explore evidence-based research supporting the effectiveness of mindful breathing.

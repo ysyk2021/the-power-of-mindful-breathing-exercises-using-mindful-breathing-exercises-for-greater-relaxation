@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles to Mindful Breathing: Sustaining a Regular Mindful Breathing Practice
+Sustaining a Regular Mindful Breathing Practice
 =====================================================================================================
 
 Practicing mindful breathing exercises on a regular basis can bring great benefits to both physical and mental health. However, many people struggle with maintaining a consistent practice. In this chapter, we will explore some common obstacles to sustaining a regular mindful breathing practice and provide strategies for overcoming them.

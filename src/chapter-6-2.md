@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles to Mindful Breathing: Strategies to Overcome These Barriers
+Strategies to Overcome These Barriers
 ===========================================================================================
 
 Establishing a regular mindful breathing practice can be challenging, especially when facing obstacles such as lack of time or motivation. However, with the right strategies, individuals can overcome these barriers and maintain a regular practice.

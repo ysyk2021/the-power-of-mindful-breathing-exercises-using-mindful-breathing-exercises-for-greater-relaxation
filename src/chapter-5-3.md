@@ -1,4 +1,4 @@
-Chapter 4: Applying Mindful Breathing for Health: Managing Chronic Pain and Illness with Mindful Breathing
+Managing Chronic Pain and Illness with Mindful Breathing
 ==========================================================================================================
 
 Chronic pain and illness can have a significant impact on one's quality of life. However, mindful breathing exercises can be an effective tool for managing symptoms and promoting overall health and well-being. In this chapter, we will explore how mindful breathing can be applied to manage chronic pain and illness.

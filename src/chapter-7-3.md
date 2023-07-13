@@ -1,4 +1,4 @@
-Chapter 6: Mindful Breathing and Mental Health: Building mindfulness-based coping skills with mindful breathing
+Building mindfulness-based coping skills with mindful breathing
 ===============================================================================================================
 
 Mindful breathing exercises can play an important role in building mindfulness-based coping skills for improving mental health. In this chapter, we will explore the benefits of mindful breathing exercises on mental health and how they can be used as coping skills.

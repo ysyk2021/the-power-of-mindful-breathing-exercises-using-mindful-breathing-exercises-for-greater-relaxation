@@ -1,4 +1,4 @@
-Introduction: Overview of the Book
+Overview of the Book
 ==================================
 
 Mindful breathing exercises are a form of mindfulness meditation that involve focusing on the breath in a non-judgmental, present-moment way. The practice of mindful breathing can provide numerous benefits for physical and mental health, including reducing stress and anxiety, improving emotional regulation, and enhancing self-awareness and focus.

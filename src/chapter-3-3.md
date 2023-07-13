@@ -1,4 +1,4 @@
-Chapter 2: Introduction to Mindful Breathing Exercises: Techniques for cultivating a regular mindful breathing practice
+Techniques for cultivating a regular mindful breathing practice
 =======================================================================================================================
 
 Cultivating a regular mindful breathing practice can be an important tool for improving physical and mental health. In this chapter, we will explore techniques for establishing and maintaining a regular mindful breathing practice.

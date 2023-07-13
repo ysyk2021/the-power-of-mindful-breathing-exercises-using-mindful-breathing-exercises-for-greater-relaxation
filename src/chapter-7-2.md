@@ -1,4 +1,4 @@
-Chapter 6: Mindful Breathing and Mental Health: Using mindful breathing to manage anxiety and depression
+Using mindful breathing to manage anxiety and depression
 ========================================================================================================
 
 Mindful breathing exercises can be a powerful tool for managing symptoms of anxiety and depression. In this chapter, we will explore how mindful breathing can be used to manage anxiety and depression.

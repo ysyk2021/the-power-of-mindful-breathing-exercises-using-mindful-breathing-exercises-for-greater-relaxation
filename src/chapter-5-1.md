@@ -1,4 +1,4 @@
-Chapter 4: Applying Mindful Breathing for Health: Using Mindful Breathing for Stress Reduction
+Using Mindful Breathing for Stress Reduction
 ==============================================================================================
 
 Stress is a common experience for many individuals and can have negative impacts on physical and mental health. Fortunately, mindful breathing exercises offer a simple yet effective tool for reducing stress and improving overall wellbeing.

@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Final Thoughts and Recommendations for Continuing the Journey of Greater Relaxation and Health through Mindful Breathing
+Final Thoughts and Recommendations for Continuing the Journey of Greater Relaxation and Health through Mindful Breathing
 ===============================================================================================================================================
 
 Final Thoughts

@@ -1,4 +1,4 @@
-Chapter 2: Introduction to Mindful Breathing Exercises: Types of mindful breathing exercises
+Types of mindful breathing exercises
 ============================================================================================
 
 Mindful breathing exercises are a form of mindfulness meditation that involves focusing on the breath in a non-judgmental, present-moment way. There are several types of mindful breathing exercises that individuals can practice. In this chapter, we will explore some of the most common types.

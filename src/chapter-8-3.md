@@ -1,4 +1,4 @@
-Chapter 7: Mindful Breathing and Productivity: Techniques for Incorporating Mindful Breathing into Work and Daily Routines
+Techniques for Incorporating Mindful Breathing into Work and Daily Routines
 ==========================================================================================================================
 
 Mindful breathing exercises can be a valuable tool for improving productivity and focus in both work and daily life. By promoting relaxation and reducing stress, mindful breathing can help individuals approach tasks with greater clarity and efficiency. In this chapter, we will explore techniques for incorporating mindful breathing into work and daily routines.

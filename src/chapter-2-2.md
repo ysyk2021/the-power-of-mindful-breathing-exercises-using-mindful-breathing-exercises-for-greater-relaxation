@@ -1,4 +1,4 @@
-Chapter 1: Understanding the Benefits of Mindful Breathing: Relationship between mindfulness and breathing
+Relationship between mindfulness and breathing
 ==========================================================================================================
 
 Mindful breathing exercises involve paying attention to the sensations of the breath in a non-judgmental, present-moment way. In this chapter, we will explore the relationship between mindfulness and breathing, and how mindful breathing can provide numerous benefits for physical and mental health.

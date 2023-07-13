@@ -1,4 +1,4 @@
-Chapter 7: Mindful Breathing and Productivity: Benefits of Mindful Breathing for Focus and Concentration
+Benefits of Mindful Breathing for Focus and Concentration
 ========================================================================================================
 
 In today's fast-paced world, it can be challenging to stay focused and productive. However, mindful breathing exercises offer a simple yet effective tool for improving focus and concentration, leading to enhanced productivity and performance.

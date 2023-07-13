@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Reflection on the Power of Mindful Breathing Exercises
+Reflection on the Power of Mindful Breathing Exercises
 =============================================================================
 
 Throughout this book, we have explored the many benefits of practicing mindful breathing exercises for greater relaxation and overall health. From reducing stress and anxiety to improving cardiovascular health and managing chronic pain, mindful breathing can be a powerful tool for cultivating greater well-being in our lives.

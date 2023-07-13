@@ -1,4 +1,4 @@
-Chapter 2: Introduction to Mindful Breathing Exercises: Definition and benefits of mindful breathing exercises
+Definition and benefits of mindful breathing exercises
 ==============================================================================================================
 
 Mindful breathing exercises are a form of mindfulness meditation that involves focusing on the breath in a non-judgmental, present-moment way. In this chapter, we will explore the definition and benefits of mindful breathing exercises.

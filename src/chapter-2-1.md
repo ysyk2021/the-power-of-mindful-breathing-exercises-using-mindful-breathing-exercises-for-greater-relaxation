@@ -1,4 +1,4 @@
-Chapter 1: Understanding the Benefits of Mindful Breathing: Definition and benefits of mindful breathing
+Definition and benefits of mindful breathing
 ========================================================================================================
 
 Mindful breathing is a form of mindfulness meditation that involves focusing on the breath in a non-judgmental, present-moment way. In this chapter, we will explore the definition and benefits of mindful breathing.

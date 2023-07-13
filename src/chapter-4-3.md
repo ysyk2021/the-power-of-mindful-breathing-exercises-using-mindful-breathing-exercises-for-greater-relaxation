@@ -1,4 +1,4 @@
-Chapter 3: Techniques and Exercises for Mindful Breathing: Strategies for Incorporating Mindful Breathing into Daily Life
+Strategies for Incorporating Mindful Breathing into Daily Life
 =========================================================================================================================
 
 Diaphragmatic Breathing
