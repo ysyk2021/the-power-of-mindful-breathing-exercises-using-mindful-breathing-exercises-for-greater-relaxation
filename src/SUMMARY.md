@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful breathing exercises for relaxation and health](chapter-1-2.md)
 - [Chapter 1: Understanding the Benefits of Mindful Breathing](chapter-2.md)
   - [Definition and benefits of mindful breathing](chapter-2-1.md)
