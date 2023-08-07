@@ -3,7 +3,7 @@ Types of Mindful Breathing Exercises
 
 In this chapter, we will explore various types of mindful breathing exercises that can be incorporated into your practice. Each exercise offers unique benefits and contributes to greater relaxation and improved health.
 
-1. Diaphragmatic Breathing
+1\. Diaphragmatic Breathing
 --------------------------
 
 Diaphragmatic breathing, also known as belly breathing, focuses on deepening the breath by engaging the diaphragm. To practice diaphragmatic breathing:
@@ -16,7 +16,7 @@ Diaphragmatic breathing, also known as belly breathing, focuses on deepening the
 
 Diaphragmatic breathing promotes relaxation, reduces stress, and enhances oxygen flow throughout the body.
 
-2. Box Breathing
+2\. Box Breathing
 ----------------
 
 Box breathing, also known as square breathing, involves equalizing the length of the inhalation, exhalation, and pauses between breaths. To practice box breathing:
@@ -30,7 +30,7 @@ Box breathing, also known as square breathing, involves equalizing the length of
 
 Box breathing helps regulate the nervous system, calms the mind, and promotes mental clarity.
 
-3. Alternate Nostril Breathing
+3\. Alternate Nostril Breathing
 ------------------------------
 
 Alternate nostril breathing, also called Nadi Shodhana, is a balancing and calming technique that involves breathing through one nostril at a time. To practice alternate nostril breathing:
@@ -44,7 +44,7 @@ Alternate nostril breathing, also called Nadi Shodhana, is a balancing and calmi
 
 Alternate nostril breathing harmonizes the left and right hemispheres of the brain, balances energy channels, and promotes mental and emotional equilibrium.
 
-4. Four-Seven-Eight Breathing
+4\. Four-Seven-Eight Breathing
 -----------------------------
 
 Four-Seven-Eight breathing, also known as relaxing breath, is a technique that involves consciously extending the exhalation and creating a longer pause between breaths. To practice Four-Seven-Eight breathing:

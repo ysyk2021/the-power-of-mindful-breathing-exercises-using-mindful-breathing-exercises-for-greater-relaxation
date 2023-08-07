@@ -31,3 +31,4 @@
   - [Benefits of mindful breathing for focus and concentration](chapter-8-2.md)
   - [Techniques for incorporating mindful breathing into work and daily routines](chapter-8-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
