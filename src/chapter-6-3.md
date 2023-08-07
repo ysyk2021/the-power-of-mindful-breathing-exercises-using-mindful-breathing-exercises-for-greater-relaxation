@@ -3,9 +3,6 @@ Sustaining a Regular Mindful Breathing Practice
 
 In this chapter, we will explore strategies to help you sustain a regular mindful breathing practice. Consistency is key when it comes to experiencing the full benefits of mindful breathing exercises for greater relaxation and improved health. By implementing these strategies, you can establish a sustainable practice that becomes an integral part of your daily life.
 
-**Introduction**
-----------------
-
 Maintaining a regular mindful breathing practice requires commitment and perseverance. It is through consistent practice that you can deepen your understanding of mindfulness and experience its transformative effects. This chapter will provide practical strategies to help you sustain your practice in the long run.
 
 **Set Realistic Goals**

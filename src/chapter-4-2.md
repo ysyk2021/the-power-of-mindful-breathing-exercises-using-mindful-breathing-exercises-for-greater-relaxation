@@ -3,9 +3,6 @@ Breath Counting and Visualization Techniques
 
 In this chapter, we will explore breath counting and visualization techniques as powerful tools for enhancing your mindful breathing practice. These techniques can help deepen your focus, promote relaxation, and cultivate a greater sense of awareness.
 
-**Introduction**
-----------------
-
 Breath counting and visualization techniques serve as effective ways to engage your mind and enhance your experience during mindful breathing exercises. By incorporating these techniques into your practice, you can further develop your concentration, reduce distractions, and tap into the transformative power of your breath.
 
 **1. Breath Counting**
