@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles to Mindful Breathing
-====================================================
 
 Common Barriers to Practicing Mindful Breathing
 -----------------------------------------------

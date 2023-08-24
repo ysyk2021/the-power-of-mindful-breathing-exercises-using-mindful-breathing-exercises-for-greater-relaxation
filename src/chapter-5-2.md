@@ -1,5 +1,3 @@
-Benefits of Mindful Breathing for Cardiovascular Health
-==================================================================
 
 In this chapter, we will explore the numerous benefits of mindful breathing exercises for cardiovascular health. By incorporating mindful breathing into our daily routines, we can enhance our overall well-being and support the health of our heart and blood vessels.
 

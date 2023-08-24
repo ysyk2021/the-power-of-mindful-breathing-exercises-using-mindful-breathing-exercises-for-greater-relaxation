@@ -1,4 +1,3 @@
-# Conclusion
 
 Reflection on the Power of Mindful Breathing Exercises
 ------------------------------------------------------

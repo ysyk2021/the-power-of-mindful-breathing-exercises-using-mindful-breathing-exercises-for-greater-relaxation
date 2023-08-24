@@ -1,5 +1,3 @@
-Chapter 6: Mindful Breathing and Mental Health
-==============================================
 
 Cultivating Emotional Resilience through Mindful Breathing
 ----------------------------------------------------------

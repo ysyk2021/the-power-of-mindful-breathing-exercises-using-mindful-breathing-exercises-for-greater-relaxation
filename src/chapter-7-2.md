@@ -1,5 +1,3 @@
-Using Mindful Breathing to Manage Anxiety and Depression
-===================================================================
 
 In this chapter, we will explore the powerful role of mindful breathing exercises in managing anxiety and depression. By incorporating mindful breathing into our daily routine, we can cultivate a greater sense of calm, reduce stress, and improve our mental well-being.
 

@@ -1,5 +1,3 @@
-Chapter 4: Applying Mindful Breathing for Health
-================================================
 
 Using Mindful Breathing for Stress Reduction
 --------------------------------------------

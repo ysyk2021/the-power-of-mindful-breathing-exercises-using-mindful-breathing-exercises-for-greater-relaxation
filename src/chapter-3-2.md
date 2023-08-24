@@ -1,5 +1,3 @@
-Types of Mindful Breathing Exercises
-===============================================
 
 In this chapter, we will explore various types of mindful breathing exercises that can be incorporated into your practice. Each exercise offers unique benefits and contributes to greater relaxation and improved health.
 

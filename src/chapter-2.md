@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Benefits of Mindful Breathing
-==========================================================
 
 Definition and Benefits of Mindful Breathing
 --------------------------------------------

@@ -1,5 +1,3 @@
-Definition and Benefits of Mindful Breathing
-=======================================================
 
 In this chapter, we will explore the definition and benefits of mindful breathing. Understanding the concept of mindful breathing and its numerous advantages will provide you with a solid foundation for incorporating it into your daily life to enhance relaxation and overall well-being.
 

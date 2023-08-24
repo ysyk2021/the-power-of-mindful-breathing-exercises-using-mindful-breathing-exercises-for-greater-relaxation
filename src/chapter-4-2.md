@@ -1,5 +1,3 @@
-Breath Counting and Visualization Techniques
-========================================================
 
 In this chapter, we will explore breath counting and visualization techniques as powerful tools for enhancing your mindful breathing practice. These techniques can help deepen your focus, promote relaxation, and cultivate a greater sense of awareness.
 

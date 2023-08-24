@@ -1,5 +1,3 @@
-Building Mindfulness-Based Coping Skills with Mindful Breathing
-==========================================================================
 
 In this chapter, we will delve into the practical application of mindful breathing as a tool for building mindfulness-based coping skills. By integrating mindful breathing exercises into our daily lives, we can develop resilience, enhance our ability to cope with challenges, and foster overall well-being.
 

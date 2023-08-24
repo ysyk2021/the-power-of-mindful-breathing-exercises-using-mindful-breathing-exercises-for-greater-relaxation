@@ -1,5 +1,3 @@
-Chapter 7: Mindful Breathing and Productivity
-=============================================
 
 The Relationship Between Breathing and Productivity
 ---------------------------------------------------

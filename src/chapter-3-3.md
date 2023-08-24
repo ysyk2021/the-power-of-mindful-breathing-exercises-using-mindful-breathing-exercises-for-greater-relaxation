@@ -1,5 +1,3 @@
-Techniques for Cultivating a Regular Mindful Breathing Practice
-==========================================================================
 
 In this chapter, we will explore various techniques and strategies to help you cultivate a regular mindful breathing practice. Building a consistent and sustainable practice is key to reaping the long-term benefits of mindful breathing for relaxation and health.
 
